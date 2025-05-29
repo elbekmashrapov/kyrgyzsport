@@ -1,1 +1,1 @@
-# kyrgyzsport
+elbekmashrapov.github.io/kyrgyzsport
